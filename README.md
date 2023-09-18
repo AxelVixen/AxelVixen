@@ -1,7 +1,7 @@
 # READ ME GOD
 ![](https://static.jojowiki.com/images/2/20/latest/20210315204953/PPPStickerGhiaccio2EX.png)
 
-For people too lazy to read rentrys smh
+For people too lazy to read rentrys/sentrys(new rentry thing) smh
 
 im axel or ghiaccio (ghia works aswell)
 
