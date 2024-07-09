@@ -1,6 +1,6 @@
 # READ ME GOD
 
-![](https://cdn.discordapp.com/attachments/843985654463332395/1257510347670028429/download_7.png?ex=66855406&is=66840286&hm=916b1ae02fd24388b5f8a5e16a2916a25b5e7ab8ba4d999190b2e3589afb6d1f&)
+![](https://cdn.discordapp.com/attachments/843985654463332395/1260369326364692490/1720565830774652433.png?ex=668f11e7&is=668dc067&hm=903660c7e9898d3e583f10d292fdcc145e8b2346dcef0e7462e032354b6c9be5&)
 
 - Axel / Vixen ; She/him ; Bigender + Bisexual!
 
