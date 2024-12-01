@@ -12,5 +12,7 @@ I love ocelot, Silco, Sevika, Viktor, Scarecrow,,,
 
 i am literally ocelot and viktor and scarecrow btw (don't take this seriously or maybe do, idc)
 
+[Arcane oc Viera](https://unvale.io/character/0ce8f408-5762-4f28-ad8c-45f170c3f612)
+
 ![](https://64.media.tumblr.com/a80a1228ec470a21fcf4f48a1fb8ee79/4208fdf8dccd6722-ec/s500x750/c8ca8db0b3815ef67c618eda80749eee978cfe09.gifv)
 ![](https://64.media.tumblr.com/09b670123082d45a10b2a431b1138ce8/de79baa0a4f7ad1d-be/s1280x1920/a44b7cc996e4e0405dda32db3010b4052e92dd3f.gifv)
