@@ -9,6 +9,7 @@ def read my carrd lolll
 Mgs, Arcane, Sonic, 007, DC (Batman), Ect
 
 I love ocelot, Silco, Sevika, Viktor, Scarecrow and marcus, yes marcus, lord save me,,, 
+
 i am literally ocelot and viktor and scarecrow btw (don't take this seriously or maybe do, idc)
 
 ![](https://cdn.discordapp.com/attachments/843985654463332395/1314054244713762836/cf9795a0-7c21-4e0a-a62b-792e84f37d79.gif?ex=67525fe1&is=67510e61&hm=0167993b4d34622ddac041fd2126e006170db52ed9f792ca47df5b70f94d040b&)
