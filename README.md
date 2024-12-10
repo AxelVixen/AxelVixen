@@ -12,7 +12,7 @@ I love ocelot, Silco, Sevika, Viktor, Scarecrow and marcus, yes marcus, lord sav
 
 i am literally ocelot and viktor and scarecrow btw (don't take this seriously or maybe do, idc)
 
-![](https://cdn.discordapp.com/attachments/843985654463332395/1314054244713762836/cf9795a0-7c21-4e0a-a62b-792e84f37d79.gif?ex=67525fe1&is=67510e61&hm=0167993b4d34622ddac041fd2126e006170db52ed9f792ca47df5b70f94d040b&)
+![](https://cdn.discordapp.com/attachments/843985654463332395/1314054244713762836/cf9795a0-7c21-4e0a-a62b-792e84f37d79.gif?ex=6759a021&is=67584ea1&hm=4a0a221a1d9f768232718b3af1627697e4db3105a0e2795d72a142c7ae8aa2db&)
 
 [Arcane oc Viera](https://unvale.io/character/0ce8f408-5762-4f28-ad8c-45f170c3f612)
 
