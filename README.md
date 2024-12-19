@@ -10,7 +10,7 @@
 
 <p align="center">$${\color{purple}Mgs,\space Arcane,\space Sonic,\space 007,\space DC\space (Batman),\space Ect}$$</p>
 
-<p align="center">$${\color{green}<3\space ocelot,\space Silco,\space Sevika,\space Viktor,\space Scarecrow\space and\space marcus,\space yes\space marcus,\space lord\space save\space me,,, \space<3}$$ </p>
+<p align="center">$${\color{green}<3\space ocelot,\space Silco,\space Sevika,\space Viktor,\space singed,\space Scarecrow\space and\space marcus,\space yes\space marcus,\space lord\space save\space me,,, \space<3}$$ </p>
 
 <p align="center">$${\color{purple}i\space am\space literally\space ocelot\space and\space viktor\space and\space scarecrow\space and\space singed\space btw\space (don't\space take\space this\space seriously\space or\space maybe\space do,\space idc)}$$</p>
 
