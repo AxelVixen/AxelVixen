@@ -18,5 +18,8 @@
 
 <div align="center">
 
+["Let us do this once again..as partners"](https://guns.lol/jayvik)
+<div/>
+
 <p align="center"> <img src=https://i.pinimg.com/736x/90/4b/51/904b513dc96dcc43a3c2f692da302456.jpg>
 <img src=https://64.media.tumblr.com/5e48c4a0b5bf02cd3993ea08f0ee4f43/0dbd1c76470c6a70-ab/s640x960/9265e9ab13bf73e861cf925c764085d0c6e31233.gifv> </p>
