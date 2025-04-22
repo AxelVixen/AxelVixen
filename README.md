@@ -8,7 +8,7 @@
 
 <p align="center"> $${\color{white}Strawpage\space coming\space soon\space !!!!\space lolll}$$ </p>
 
-<p align="center">$${\color{LightSkyBlue}Golden Kamuy,\space MGS,\space Sonic,\space 007,\space Batman,\space 8:11,\space Ect}$$</p>
+<p align="center">$${\color{LightSkyBlue}Golden Kamuy,\space MGS,\space Sonic,\space JJBA,\space Batman,\space 8:11,\space Ect}$$</p>
 
 <p align="center">$${\color{white}that\space one,\space koito,\space kinnie,\space and,\space nikaido,\space lover\space and\space arisaka,\space fan\space plus,\space others\space save\space me,,, \space<3}$$ </p>
 
