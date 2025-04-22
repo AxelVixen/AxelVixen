@@ -10,7 +10,7 @@
 
 <p align="center">$${\color{LightSkyBlue}Golden Kamuy,\space MGS,\space Sonic,\space JJBA,\space Batman,\space 8:11,\space Ect}$$</p>
 
-<p align="center">$${\color{white}that\space one,\space koito,\space kinnie,\space and,\space nikaido,\space lover\space and\space arisaka,\space fan\space plus,\space others\space save\space me,,, \space<3}$$ </p>
+<p align="center">$${\color{white}that\space one\space koito\space kinnie\space and\space nikaido,\space lover\space and\space arisaka\space fan\space plus,\space others\space save\space me,,, \space<3}$$ </p>
 
 <p align="center">$${\color{LightSkyBlue}i\space am\space literally\space ocelot\space and\space koito\space and\space arisaka\space and\space shiraishi\space btw\space (don't\space take\space this\space seriously\space or\space maybe\space do,\space idc,\space i\space also\space kin\space others)}$$</p>
 
