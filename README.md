@@ -1,7 +1,7 @@
 # READ ME GOD
 
 <p align="center"><img src="https://64.media.tumblr.com/ef25be8265b37273a13689eccb8e8277/394fb69f4b2a3c71-37/s540x810/78c16104ea3b7d28507e9998210b0a06d6c77087.gifv"></p>
-<p align="center"><img src="https://64.media.tumblr.com/1088964751a6d67798393a0006aeedcd/65c3d8ad05dc0185-35/s640x960/06087ecd75b3eab900e1b14df4c25d335ab16089.gifv"></p>
+<p align="center"><img src="https://i.pinimg.com/736x/5f/3f/7f/5f3f7f0396b7c901010e599549f160bb.jpg"></p>
 <p align="center"><img src="https://64.media.tumblr.com/7637c5f96f0a77eb406a1885c3afff59/394fb69f4b2a3c71-ff/s100x200/d460d72448a211644b534c953711df291921e3e4.gifv"></p>
 
 <details>
