@@ -1,7 +1,7 @@
 # READ ME GOD
 
 <p align="center"><img src="https://64.media.tumblr.com/ef25be8265b37273a13689eccb8e8277/394fb69f4b2a3c71-37/s540x810/78c16104ea3b7d28507e9998210b0a06d6c77087.gifv"></p>
-<p align="center"><img src="https://i.pinimg.com/736x/5f/3f/7f/5f3f7f0396b7c901010e599549f160bb.jpg"></p>
+<p align="center"><img src="https://i.pinimg.com/originals/b0/66/97/b06697cb981e218ca4a38cb95d11e640.gif"></p>
 <p align="center"><img src="https://64.media.tumblr.com/7637c5f96f0a77eb406a1885c3afff59/394fb69f4b2a3c71-ff/s100x200/d460d72448a211644b534c953711df291921e3e4.gifv"></p>
 
 <details>
@@ -12,7 +12,7 @@
 
 <p align="center"><img src="https://64.media.tumblr.com/b4b6adef956835b9749dcbc030c47e99/f1f83ffc1ed4df22-77/s75x75_c1/8d76dbf36e98d88cb78148c029ff012edd837da0.pnj"></p>
 
-<p align="center">$${\color{Maroon}GUNDHAM, \space TOKO, \space KOREKIYO, \space AND \space VITTORINO \space IRL, \space TOTALLY}$$ </p>
+<p align="center">$${\color{Maroon}HIDAN, \space KOREKIYO, \space AND \space VITTORINO \space IRL, \space TOTALLY}$$ </p>
 <details>
 
   <summary> <p align="center"><img src="https://64.media.tumblr.com/1ddff3d9c4dec05ae9c039c67daac65e/86295c30fdf5d8ba-72/s75x75_c1/af2f2c60fba909dfa37bdbb0a155c59a04d807cd.pnj"></p></summary>
