@@ -12,7 +12,7 @@
 
 <p align="center"><img src="https://64.media.tumblr.com/b4b6adef956835b9749dcbc030c47e99/f1f83ffc1ed4df22-77/s75x75_c1/8d76dbf36e98d88cb78148c029ff012edd837da0.pnj"></p>
 
-<p align="center">$${\color{Maroon}HIDAN, \space KOREKIYO, \space AND \space VITTORINO \space IRL, \space TOTALLY}$$ </p>
+<p align="center">$${\color{Maroon}LILIYA, \space RICHARD TRAGER, \space AND \space HIDAN \space IRL, \space TOTALLY}$$ </p>
 <details>
 
   <summary> <p align="center"><img src="https://64.media.tumblr.com/1ddff3d9c4dec05ae9c039c67daac65e/86295c30fdf5d8ba-72/s75x75_c1/af2f2c60fba909dfa37bdbb0a155c59a04d807cd.pnj"></p></summary>
